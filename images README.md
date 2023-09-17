@@ -1,1 +1,0 @@
-Images created in class
